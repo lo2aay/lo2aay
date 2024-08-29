@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/lo2aay](https://github.com/lo2aay)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YVAOeV7NTXoXuQalaX0l1uP3MCR5wtZg/view?usp=sharing](https://drive.google.com/file/d/1YVAOeV7NTXoXuQalaX0l1uP3MCR5wtZg/view?usp=sharing)
+- 📄 Know about my experiences -> My CV [https://drive.google.com/file/d/1YVAOeV7NTXoXuQalaX0l1uP3MCR5wtZg/view?usp=sharing](https://drive.google.com/file/d/1YVAOeV7NTXoXuQalaX0l1uP3MCR5wtZg/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
